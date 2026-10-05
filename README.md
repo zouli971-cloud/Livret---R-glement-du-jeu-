@@ -1,2 +1,2 @@
-# Livret---R-glement-du-jeu-
+# Livret-Réglement-du-jeu-
 challenge interservices. "Mon service se vaccine ... en connaissance" novembre 2026_CHCBE
